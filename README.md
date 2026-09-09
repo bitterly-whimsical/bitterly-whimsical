@@ -3,4 +3,7 @@
 </p>
 
 <p align="center">
-  $${\color{#913061}big \space wip}$$
+  $${\color{#913061}injecting \space you \space with \space poison \space ᐠ( \space ᐢ \space ᵕ \spaceᐢ \space )ᐟ}$$
+
+<p align="center">
+  $${\color{#913061}me \space irl}$$
